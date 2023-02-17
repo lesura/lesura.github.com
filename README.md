@@ -1,1 +1,1 @@
-# lesura.github.com
+# Lesura Strategies, LLC
