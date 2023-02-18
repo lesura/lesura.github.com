@@ -1,1 +1,0 @@
-# Lesura Strategies, LLC
